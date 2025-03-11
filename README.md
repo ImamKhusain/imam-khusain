@@ -7,11 +7,12 @@
 
 - 📫 How to reach me **imamkhusain29@gmail.com**
 
-- 📄 Know about my experiences [I have organizational experience, namely as Publication Staff at Personal Computer and Cinematography at SMAN 2 Madiun in 2021 to 2022. 1st place in the Poster Competition organized by the Physiotherapy Study Program Student Association of the Undergraduate Program of the National Development University “Veteran” Jakarta in the Physiotherapy Festival Dies Natalis Event on Saturday, September 17, 2022. Public Relations and Media Communication Staff in the Interdisciplinary Scientific Reserch organization in November 2023 until now. MedPub Public Relations Staff at SMA Negeri 2 Madiun Alumni Association in 2022 until now. Translated with DeepL.com (free version)]
-# I have organizational experience, namely as Publication Staff at Personal Computer and Cinematography at SMAN 2 Madiun in 2021 to 2022. 
-# 1st place in the Poster Competition organized by the Physiotherapy Study Program Student Association of the Undergraduate Program of the National Development University “Veteran” Jakarta in the Physiotherapy Festival Dies Natalis Event on Saturday, September 17, 2022. 
-# Public Relations and Media Communication Staff in the Interdisciplinary Scientific Reserch organization in November 2023 until now. 
-# MedPub Public Relations Staff at SMA Negeri 2 Madiun Alumni Association in 2022 until now.
+- 📄 Know about my experiences :
+  1. I have organizational experience, namely as Publication Staff at Personal Computer and Cinematography at SMAN 2 Madiun in 2021 to 2022. 
+  2. 1st place in the Poster Competition organized by the Physiotherapy Study Program Student Association of the Undergraduate Program of the National Development University “Veteran” Jakarta in the Physiotherapy
+  3. Festival Dies Natalis Event on Saturday, September 17, 2022.
+  4. Public Relations and Media Communication Staff in the Interdisciplinary Scientific Reserch organization in November 2023 until now.
+  5. MedPub Public Relations Staff at SMA Negeri 2 Madiun Alumni Association in 2022 until now.
 
 - ⚡ Fun fact **I am easy to adapt to the new organizational environment and friendly to everyone.**
 
